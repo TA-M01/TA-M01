@@ -1,3 +1,3 @@
 
 
-  ![](https://s5.ezgif.com/tmp/ezgif-5-b4759e0ed0.gif)  read rentry :3
+  ![](https://s5.ezgif.com/tmp/ezgif-5-b4759e0ed0.gif) :3
