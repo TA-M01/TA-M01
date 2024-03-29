@@ -1,6 +1,6 @@
 
 
-![he](https://media.discordapp.net/attachments/1077228367843176498/1213560158366601266/tumblr_d1b03b00848657115e243d8525ae505f_2da92c7d_1280.png?ex=65f5eaf8&is=65e375f8&hm=e4ec37bb3ccbe08b791353a38a0bac9055db12434130ddb42c4db525cb9053a3&=&format=webp&quality=lossless&width=300&height=300)
+![he](https://media.discordapp.net/attachments/1077228367843176498/1213560432661626930/tumblr_d1b03b00848657115e243d8525ae505f_2da92c7d_12801.png?ex=66119aba&is=65ff25ba&hm=9a0a66c47c0a7f92fc23cd400a060c85bc8a25cee7b438690e252a1420f061f5&=&format=webp&quality=lossless&width=640&height=640)
 
 <i>b</i>ug. <i>she</i> + <b>her</b></i>
 ![@_@](https://64.media.tumblr.com/3d22c382cc84fda92f6308ce018067b3/67280e8b1a696d5e-ed/s75x75_c1/a8e8d3597e6442e7b301d7a9fbb12fec45da74df.gifv)
