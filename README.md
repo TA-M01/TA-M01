@@ -1,6 +1,6 @@
 
 
-the attachment i uploaded isn't working help??
+![tam01](https://media.discordapp.net/attachments/1077228367843176498/1213560158366601266/tumblr_d1b03b00848657115e243d8525ae505f_2da92c7d_1280.png?ex=6643b378&is=664261f8&hm=ea16cd527d3fb21f676acbaa27dc19d34714dea80ca44897060dfc5d0dbaae69&=&format=webp&quality=lossless&width=400&height=400)
 
 <i>b</i>ug. <i>she</i> + <b>her</b></i>
 ![@_@](https://64.media.tumblr.com/3d22c382cc84fda92f6308ce018067b3/67280e8b1a696d5e-ed/s75x75_c1/a8e8d3597e6442e7b301d7a9fbb12fec45da74df.gifv)
