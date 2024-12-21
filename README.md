@@ -3,9 +3,6 @@ hello!! ![](https://64.media.tumblr.com/6e8b1d175db52a0cf208287157c92c28/1b5672d
 
 i'm tamariburger! i made this page specifically for pony town!
 
-please feel free to talk to me, i don't bite.
-
-I love Tamari!!!
 
 
 
