@@ -6,7 +6,7 @@ i'm tamariyuri! i made this page specifically for pony town!
 ⠀
 i'm a girl! i go exclusively by she/her but i'm cis so i don't really care if you misgender me by accident lol
 
-⠀
+
 come talk to me! i love talking to people! ^_^
 
 
