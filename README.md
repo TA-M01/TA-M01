@@ -1,13 +1,5 @@
 
-hello!! ![](https://64.media.tumblr.com/6e8b1d175db52a0cf208287157c92c28/1b5672df535286b8-cd/s75x75_c1/50914a1b408463a0a449d2c0b52f74cfb0d62228.gifv)
-
-i'm tamariyuri! i made this page specifically for pony town!
-
-
-i'm a girl! i go exclusively by she/her but i'm cis so i don't really care if you misgender me by accident lol
-
-
-come talk to me! i love talking to people! ^_^
+![]https://64.media.tumblr.com/2aac439026788d66bb8a5d02bfe717e9/3fd77b6f3cd544b0-60/s2048x3072/cf0ef6a31bbc688435eb60f88219cc4734adce88.pnj
 
 
 
