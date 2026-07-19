@@ -1,3 +1,4 @@
 i'm a girl
 
-<img width="800" height="800" alt="69e15adb4c6d4761e451c1a484730af0" src="https://github.com/user-attachments/assets/2b02c583-bede-4d18-931b-6c416e52db0d" />
+<img width="500" height="500" alt="69e15adb4c6d4761e451c1a484730af0-removebg-preview" src="https://github.com/user-attachments/assets/6b4f6c17-7500-4641-a5ca-4e1ffb0b1411" />
+
